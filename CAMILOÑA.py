@@ -1,1 +1,1 @@
-AANAANNAANANANAN
+ands
